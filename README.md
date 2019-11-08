@@ -1,6 +1,6 @@
 # 181410059
-## Imas Komalasari
+## Imas Komalasari :alien:
 e-mail : imaskomalasari38@gmail.com
-<br>Telepon : 0895357798449
-### Courses
+<br>:iphone: : 0895357798449
+### :package:
 Struktur Data II
